@@ -44,4 +44,9 @@ Rapidez de actuación y de reacción ante alertas y
 crisis alimentarias.
 Credibilidad y prestigio para los operadores alimentario
 
-https://seguridadycalidadalimentaria.fundacionusal.es/wp-content/uploads/guias/ccaa/Guia_basica_gestion_Traza_industrias_Carnicas.pdf 
+https://seguridadycalidadalimentaria.fundacionusal.es/wp-content/uploads/guias/ccaa/Guia_basica_gestion_Traza_industrias_Carnicas.pdf  
+
+
+https://www.u-cursos.cl/ingenieria/2011/2/AS4502/1/material_docente/bajar?id=384466  
+
+
